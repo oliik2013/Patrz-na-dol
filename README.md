@@ -1,5 +1,3 @@
-# Zasady Fajnej Społeczności Dla Każdego
-
 1. Nie wolno zmieniać opisów grup itp. jeśli zapomne to zablokować.
 2. Nie przeklinać i obrażać
 3. Nie wysyłać brzydkich rzeczy.
